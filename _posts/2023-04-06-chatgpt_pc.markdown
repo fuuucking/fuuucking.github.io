@@ -13,9 +13,9 @@ chat gpt账号【点击购买】必须有<mark>账号</mark>，并且<mark>购�
 
 可以解决chat gpt登录使用限制等等的问题，官网有在线客服在线排忧解难
 
-🏆速度飞快不卡顿节点[点击购买](https://zcloud88.com/register?aff=dw6ofj)🏆
+🏆速度飞快不卡顿节点[点击购买](https://zcloud88.com/register?aff=zm6ycs)🏆
 
- https://zcloud88.com/register?aff=dw6ofj
+ https://zcloud88.com/register?aff=zm6ycs
 
 &gt; 节点网站是我们从网上搜集的速度快稳定的，只做推荐使用，有任何节点问题请直接联系网站客服。
 我们会持续为大家搜集，速度更快更稳定的节点。
@@ -42,7 +42,7 @@ chat gpt账号【点击购买】必须有<mark>账号</mark>，并且<mark>购�
 ### 1、购买地址
 复制下面这个网址到浏览器中打开
 
-&gt; https://zcloud88.com/register?aff=dw6ofj
+&gt; https://zcloud88.com/register?aff=zm6ycs
 
 购买付费节点专享超高速网速，除了chat gpt，还可以使用<mark>tiktok、谷歌、ins、youtube、twitter</mark>等其它国外软件
 

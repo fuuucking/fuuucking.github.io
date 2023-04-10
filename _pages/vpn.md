@@ -14,7 +14,7 @@ layout: post
 
 复制下面这个网址到浏览器中打开
 
-&gt; https://zcloud88.com/register?aff=dw6ofj  [点此前往](https://zcloud88.com/register?aff=dw6ofj)
+&gt; https://zcloud88.com/register?aff=zm6ycs  [点此前往](https://zcloud88.com/register?aff=zm6ycs)
 
 购买付费节点专享超高速网速，海外追剧，跨境电商的利器，低至5元/月, 注册即可试用
 
@@ -30,11 +30,11 @@ layout: post
 
 ## ⭕️二、下载客户端
 
-`👉[windows客户端](https://file.yfniubi.club/pan/client/Clash.zip)👈`
+👉[windows客户端](https://file.yfniubi.club/pan/client/Clash.zip)👈
 
-`👉[安卓客户端](https://file.yfniubi.club/pan/client/clash-for-android.apk)👈`
+👉[安卓客户端](https://file.yfniubi.club/pan/client/clash-for-android.apk)👈
 
-`👉[macos 客户端](https://file.yfniubi.club/pan/client/ClashX.dmg)👈`
+👉[macos 客户端](https://file.yfniubi.club/pan/client/ClashX.dmg)👈
 
 #### 👇 以下为IOS客户端下载说明，非ios用户可以不看 👇
 
